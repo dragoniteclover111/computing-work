@@ -23,4 +23,3 @@ Hobbies:
 _*MY STORIES*_
 
 pls enjoy my story ideas and I hope you can appreciate them!!
-YES OKAY
